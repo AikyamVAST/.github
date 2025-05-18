@@ -1,1 +1,1 @@
-## Welcome to AiykyamVAST
+## Welcome to AikyamVAST
